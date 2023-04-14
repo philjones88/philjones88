@@ -14,6 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-
-- [Twitter](https://twitter.com/philjones88)
 - [LinkedIn](https://www.linkedin.com/in/phil-jones-4346884a)
